@@ -21,3 +21,14 @@
 ゛Don't accept a "no". If you continue pushing after I've already said no or repeatedly ignore my boundaries, please just go.
 
 ゛Harassers. like... what the hell is wrong with you.?
+
+゛People who intentionally spread rumors or lies about others.
+
+
+<img width="1199" height="400" alt="14c090fe33ead3759e0afb849d5788d4" src="https://github.com/user-attachments/assets/d7b17e3a-c775-47d9-8143-7a23aafa3685" />
+
+𖦹 ׂ 𓈒 🥞 ／ ⋆ ۪ 𝐀𝐛𝐨𝐮𝐭 𝐦𝐞 ── .✦ ദ്ദി◝ ⩊ ◜.ᐟ 
+
+ˎˊ˗ Ambivert, ISFJ, Nature lover, Cat lover
+ˎˊ˗ You can get to know me more by approaching me! I don't mind, really 𑄝੭
+
