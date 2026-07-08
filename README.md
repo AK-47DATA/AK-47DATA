@@ -25,10 +25,25 @@
 ゛People who intentionally spread rumors or lies about others.
 
 
-<img width="1199" height="400" alt="14c090fe33ead3759e0afb849d5788d4" src="https://github.com/user-attachments/assets/d7b17e3a-c775-47d9-8143-7a23aafa3685" />
-
 𖦹 ׂ 𓈒 🥞 ／ ⋆ ۪ 𝐀𝐛𝐨𝐮𝐭 𝐦𝐞 ── .✦ ദ്ദി◝ ⩊ ◜.ᐟ 
 
 ˎˊ˗ Ambivert, ISFJ, Nature lover, Cat lover
 ˎˊ˗ You can get to know me more by approaching me! I don't mind, really 𑄝੭
 
+
+˗ˏˋ ꒰ ✉︎ ꒱ ˎˊ˗  𝐌𝐮𝐬𝐢𝐜 𝐈 𝐥𝐢𝐬𝐭𝐞𝐧 𝐭𝐨 ( 𝐚𝐬 𝐦𝐚𝐤𝐢𝐧𝐠 𝐚 𝐥𝐢𝐭𝐭𝐥𝐞 𝐢𝐦𝐚𝐠𝐢𝐧𝐞 𝐨𝐟 𝐦𝐞!) ── .✦ 
+
+
+♫ Dominic Fike - Babydoll
+
+♫ Take Care - Think Of Me Once In A While, Take Care
+
+♫ Czerwone Jagody (Red Berries)
+
+♫ And One - Military Fashion Show
+
+♫ Ashbury Heights - Christ
+
+♫ Lucy - Bingo Bingo Baby 
+
+♫ Mollie Elizabeth - Run Rabbit
