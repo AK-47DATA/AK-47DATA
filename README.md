@@ -16,7 +16,7 @@
 
 ゛Judge easily. I'm sometimes a sensitive person, so If you enjoy making fun or judge me/others dni.
 
-゛Are racist. No explanation for this one. Just dni please if you're an racist.
+゛Racist. No explanation for this one. Just dni please if you're an racist.
 
 ゛Don't accept a "no". If you continue pushing after I've already said no or repeatedly ignore my boundaries, please just go.
 
@@ -27,11 +27,11 @@
 
 𖦹 ׂ 𓈒 🥞 ／ ⋆ ۪ 𝐀𝐛𝐨𝐮𝐭 𝐦𝐞 ── .✦ ദ്ദി◝ ⩊ ◜.ᐟ 
 
-ˎˊ˗ Ambivert, ISFJ, AFAB Transgirl, November baby, Nature lover, Cat lover, love Pressure and The Mimic (both on roblox) soo much. I am an artist also
+ˎˊ˗ Ambivert, ISFJ, AFAB Transgirl, November baby, Nature lover, Cat lover, love Pressure and The Mimic (both on roblox), I am an artist also
 ˎˊ˗ You can get to know me more by approaching me! I don't mind, really 𑄝੭
 
 
-˗ˏˋ ꒰ ✉︎ ꒱ ˎˊ˗  𝐌𝐮𝐬𝐢𝐜 𝐈 𝐥𝐢𝐬𝐭𝐞𝐧 𝐭𝐨 ( 𝐚𝐬 𝐦𝐚𝐤𝐢𝐧𝐠 𝐚 𝐥𝐢𝐭𝐭𝐥𝐞 𝐢𝐦𝐚𝐠𝐢𝐧𝐞 𝐨𝐟 𝐦𝐞!) ── .✦ 
+˗ˏˋ ꒰ ✉︎ ꒱ ˎˊ˗  𝐌𝐮𝐬𝐢𝐜 𝐈 𝐥𝐢𝐬𝐭𝐞𝐧 𝐭𝐨 ( 𝐚𝐬 𝐦𝐚𝐤𝐢𝐧𝐠 𝐚 𝐥𝐢𝐭𝐭𝐥𝐞 𝐢𝐦𝐚𝐠𝐞 𝐨𝐟 𝐦𝐞!) ── .✦ 
 
 
 ♫ Dominic Fike - Babydoll
