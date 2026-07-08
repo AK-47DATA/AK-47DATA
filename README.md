@@ -27,7 +27,7 @@
 
 𖦹 ׂ 𓈒 🥞 ／ ⋆ ۪ 𝐀𝐛𝐨𝐮𝐭 𝐦𝐞 ── .✦ ദ്ദി◝ ⩊ ◜.ᐟ 
 
-ˎˊ˗ Ambivert, ISFJ, Nature lover, Cat lover, love Pressure and The Mimic (both on roblox) soo much
+ˎˊ˗ Ambivert, ISFJ, Nature lover, Cat lover, love Pressure and The Mimic (both on roblox) soo much. I am an artist also
 ˎˊ˗ You can get to know me more by approaching me! I don't mind, really 𑄝੭
 
 
